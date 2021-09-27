@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @mikdb
-- 👀 I’m interested in ... Coding, Crypto, DeFi, Tech, Brave Browser, IT, Changing future
+- 👀 I’m interested in ... Coding, Crypto, DeFi, Tech, Brave Browser, IT, Security, Privacy, Changing future
 - 🌱 I’m currently learning ... Running Business, Learning hot to code, make web or Internet content, etc...
 - 💞️ I’m looking to collaborate on ...
 - 📫 How to reach me ... mikolaj.babieczko@protonmail.com
